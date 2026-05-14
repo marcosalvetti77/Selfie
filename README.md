@@ -1,5 +1,5 @@
 # Selfie
-Here is your next clue
+Here is your next clue:
 VW1WemIzSjBJRUpsWVdOb0lFTmhiR0VnUjI5c2IzSnBkSHJEcUE9PQ==
 
 Its Double Strong!!!!
