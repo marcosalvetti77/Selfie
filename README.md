@@ -1,6 +1,6 @@
 # Selfie
-Here is the flag 
-UVZKRGUxbHZkVjltWVd4c1gybHVYMjE1WDNSeVlYQjk=
+Here is your next clue
+VW1WemIzSjBJRUpsWVdOb0lFTmhiR0VnUjI5c2IzSnBkSHJEcUE9PQ==
 
 
 
@@ -79,5 +79,6 @@ UVZKRGUxbHZkVjltWVd4c1gybHVYMjE1WDNSeVlYQjk=
 
 
 
-Go back
+
+Its Double Strong!!!!
 
