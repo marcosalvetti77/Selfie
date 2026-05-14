@@ -2,6 +2,12 @@
 Here is your next clue
 VW1WemIzSjBJRUpsWVdOb0lFTmhiR0VnUjI5c2IzSnBkSHJEcUE9PQ==
 
+Its Double Strong!!!!
+
+
+
+
+
 
 
 HINT:Where you go when you lost.
@@ -82,5 +88,5 @@ HINT:Where you go when you lost.
 
 
 
-Its Double Strong!!!!
+
 
