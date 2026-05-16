@@ -12,7 +12,8 @@ Its Double Strong!!!!
 
 
 
-HINT:Where you go when you lost.
+HINT:Marco’s last stop can be found where travelers leave reviews. 
+
 
 
 
